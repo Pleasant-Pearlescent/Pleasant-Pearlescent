@@ -1,4 +1,4 @@
-
+IMG_20250519_022251.jpg
 
 <h1 align="center">ꪜ꠸ꪜ꠸ᦔ ρꫀꪖ᥅ꪶꫀᦓᥴꫀꪀꪻ</h1>
 <h3 align="center">I made this for the funnies, And for "Decorations" but I don't really know how to make these correctly..</h3>
