@@ -24,3 +24,5 @@
 
 Unfinished art of mine!!↓↓
 ![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/afe320eb8b64c2f0a7bcf9e269789223528b6004/HiPaint_1747495111231.jpg)
+FINAL!! FOLLOW ON X! 
+![image_alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/ecb4294ad02f14549e9d5b3e734d4aad11752177/HiPaint_1747643170834.jpg) 
