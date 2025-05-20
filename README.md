@@ -22,5 +22,5 @@
 <p align="left">
 </p>
 
-Unfinished art of mine!!↓↓ (already finished but posting it on X) 
+Unfinished art of mine!!↓↓ (already finished and posted) 
 ![image alt](https://github.com/Pleasant-Pearlescent/Pleasant-Pearlescent/blob/afe320eb8b64c2f0a7bcf9e269789223528b6004/HiPaint_1747495111231.jpg)
