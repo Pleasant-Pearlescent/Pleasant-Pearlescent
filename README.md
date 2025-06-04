@@ -18,7 +18,11 @@
 
 - (˶˃⤙˂˶) I'm mostly seen In ; **Roblox areas and Random spots.. I'm easily spotted..**
 
-- Only friends can ask for inspos from my ponies.. I've seen some heavy inspos lately... 
+- Only friends can ask for inspos from my ponies.. I've seen some heavy inspos lately...
+
+
+- Dni
+I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
 
 <h3 align="left">Art:</h3>
 <p align="left">
