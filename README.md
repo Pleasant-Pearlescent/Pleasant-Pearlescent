@@ -24,7 +24,7 @@
 - Dni
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
-I've noticed a few things already but I won't be mentioning, don't make this worse
+I've noticed a few things already
 
 <h3 align="left">Art:</h3>
 <p align="left">
