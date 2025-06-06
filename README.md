@@ -24,7 +24,7 @@
 - Dni
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
-I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately / negatively like that.. I don't wanna seem mean but what you did was unforgivable, focus on your education instead of making yourself look like someone who wants to date people who's 4 years older than you
+I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately / negatively like that.. I don't wanna seem mean but what if it is mean, I mean what you did was painful than words can explain.. but what you did was unforgivable, focus on your education instead of making yourself look like someone who spreads misinformations
 
 <h3 align="left">Art:</h3>
 <p align="left">
