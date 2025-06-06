@@ -24,7 +24,7 @@
 - Dni
 
 -I'm too lazy so I'd just say Same as flynn's Dni list (the Jany part)
-I've noticed a few things already
+I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talking about me inappropriately like that.. 
 
 <h3 align="left">Art:</h3>
 <p align="left">
